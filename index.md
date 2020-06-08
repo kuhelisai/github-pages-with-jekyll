@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to my homepage!
 
-I'm glad you are here. I plan to talk about ...
+My name is Kuheli Sai. I am a doctoral researcher and advocates for diversity and inclusion.
